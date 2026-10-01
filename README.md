@@ -1,0 +1,1 @@
+# TerokaiDelima3.0danGeminiForEducationSMeP
